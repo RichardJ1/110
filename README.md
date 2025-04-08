@@ -1,1 +1,1 @@
-# 110Richard's User Page
+Richard's User Page
