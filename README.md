@@ -1,1 +1,1 @@
-# 110Richard's User Page
+# I like Python
